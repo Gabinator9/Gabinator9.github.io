@@ -1,3 +1,5 @@
+### PEACE PARTY
+
 ### Constitution:
 the party shall be led by a "peoples council" made up of 3 people elected by simple majority, they may be recalled instantly if a majority of the party votes to do so
 
