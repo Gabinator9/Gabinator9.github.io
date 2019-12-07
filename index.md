@@ -27,6 +27,8 @@ Non Interventionism:
 
 -  We urge our government to end all stockpiling of chemical and biological weapons and all research, use, and sale of such weapons; and sign the convention that will establish the decrease and inspection of all nations' stockpiles of such weapons, which the U.S. abandoned. 
 -  The U.S. must prohibit all covert actions used to influence, de-stabilize or usurp the governments of other nations, and likewise prohibit the assassination of, or assistance in any form for the assassination of, foreign government officials. 
+
+
 Internationalism: The Peace Party is not an isolationist party, diplomacy is to be built on kindness, respect, and mutual benefit. It is not against diplomatic relations with anyone.
 
 Economics: The Peace Party is a workers party, it fights for workers, this includes poverty reduction, social programs, nationalization if necessary, progressive taxation, and anything else meant to improve the living conditions of the masses.
