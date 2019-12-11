@@ -1,9 +1,27 @@
 ### PEACE PARTY
 
 ### Constitution:
-the party shall be led by a "peoples council" made up of 3 people elected by simple majority, they may be recalled instantly if a majority of the party votes to do so
+This is a living document, it is meant to constantly develop according to the needs of the party at the time of the change.
 
-any major decisions such as changes to party platform, constitution, name, logo, or expulsion of member if controversial, can only be changed via party wide referendum
+The basic principles & rules shall be as follows
+
+- All leading bodies or groups shall be elected and can have members recalled 
+
+- All leading bodies or groups shall inform the party of their activities periodically
+
+- All party members shall be expected to be disciplined and to act in a disciplined manner so as to ensure the party's image remains intact
+
+- All decisions of leading bodies or groups shall be binding upon the bodies or groups that they are above in party hierarchy 
+
+- The minority is expected to carry out the decisions of the majority
+
+- Unless party members have carried out an investigation and can provide sources for their claims, they are expected to remain silent on something until they have done so. This does not apply to subjective situations or other things where facts and sources do not apply.
+
+- Criticism is expected and encouraged from all party members and criticism made in good faith is immune to punishment or retaliation
+
+- Party Member expulsion is a last resort, this does not apply in cases such as sabotage or deliberate malevolent acts. 
+
+- Party members are expected to correct their mistakes if they find themselves to have committed any. any member acting in an undisciplined fashion or to have made mistakes is to be handled with kindness and persuasion.
 
 ### Platform:
 Non Interventionism: 
