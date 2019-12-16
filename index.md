@@ -49,7 +49,13 @@ Non Interventionism:
 
 Internationalism: The Peace Party is not an isolationist party, diplomacy is to be built on kindness, respect, and mutual benefit. It is not against diplomatic relations with anyone.
 
-Economics: The Peace Party is a workers party, it fights for workers, this includes poverty reduction, social programs, nationalization if necessary, progressive taxation, and anything else meant to improve the living conditions of the masses.
+Economics: 
+
+Expropriation without any compensation of the capitalist class, namely the banks, big corporations and communication networks; nationalization of property and movable property wealth, of lands, the subsoil and water resources
+
+Cancellation of loans, household loans and all other types of loans owned to banks, the state and the capitalist class. Cancellation of loans and credits incurred from other countries. Immediate dissolution of investment funds and risk capital, including those of the trade unions; safeguarding of savings, pensions and all other means of subsistence earned by the workers.
+
+Constant and progressive reduction of salary gaps until their complete elimination, be it between manual labourers and intellectuals, men and women, leaders and those who are under their leadership, between the more educated or more qualified and others who have less, between cities and the countryside.
 
 Social Issues: The Peace Party is for peace domestically, not just among nations. All people regardless of gender identity or race should be equal and treated with respect. the peace party supports LGBTQIA+, feminism, and any other progressive movement.
  
